@@ -1,2 +1,7 @@
 # Pembagian_KueUntuk_Arisan-
 Projek Akhir Konpem_Pembagian Kue
+<p>KAYLA AZZURA SALIM (L0325039)<p>
+<p>NAILA BUNGA LESTARI (L0325008)<p>
+<p>FEBRIAN ZAKI HIDAYATULLAH (L0325045)<p>
+<p>DUTA LATHIIF HAQIM (L0325021)</p><p>
+<p>Penjelasan Projek: </p>
